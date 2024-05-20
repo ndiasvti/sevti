@@ -1,0 +1,2 @@
+# sevti
+latihan 
